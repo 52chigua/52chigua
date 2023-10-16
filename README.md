@@ -6,7 +6,7 @@
 
 52吃瓜备用线路2 https://52cg.work/
 
-52吃瓜永久地址（需科学⬆️网工具）https://91cg.bet/
+52吃瓜永久地址（需科学⬆️网工具）https://52cg.bet/
 
 52吃瓜TG官方群:https://t.me/wuaicg01
 
