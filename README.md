@@ -10,8 +10,6 @@
 
 52吃瓜TG官方群:https://t.me/wuaicg01
 
-加入微信扣扣粉丝群https://91cg1.ltd/?path=/qun.html
-
 失联获取最新地址方法1：https://github.com/52chigua/52chigua
 
 失联获取最新地址方法2：发任意内容到邮箱：52chigua.fun@gmail.com
