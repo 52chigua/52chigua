@@ -10,7 +10,7 @@
 
 52吃瓜永久地址（需科学⬆️网工具）https://52cg.bet/
 
-52吃瓜TG官方群:https://t.me/wuaicg01
+52吃瓜TG官方群:https://t.me/cg52_app
 
 失联获取最新地址方法1：https://github.com/52chigua/52chigua
 
