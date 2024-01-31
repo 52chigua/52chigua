@@ -1,12 +1,12 @@
-52吃瓜网最新地址👋（最新更新时间2023-12-10）
+52吃瓜网最新地址👋（最新更新时间2024-1-31）
 
-52吃瓜最新官网:https://52cg1.life/
+52吃瓜最新官网:https://52cg.fund/
 
 52吃瓜备用线路1 https://52cg.day/
 
 52吃瓜备用线路2 https://52cg.work/
 
-52吃瓜官方QQ群：https://52cg1.vip/?path=/qun.html
+52吃瓜官方QQ群：https://52cg.fund/?path=/qun.html
 
 52吃瓜永久地址（需科学⬆️网工具）https://52cg.bet/
 
