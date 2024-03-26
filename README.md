@@ -4,7 +4,7 @@
 
 52吃瓜备用线路1 https://52cg.day/
 
-52吃瓜备用线路2 https://52cg.work/
+52吃瓜备用线路2 https://52cg1.me/
 
 52吃瓜官方QQ群：https://52cg.fund/?path=/qun.html
 
