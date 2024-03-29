@@ -2,7 +2,7 @@
 
 52吃瓜最新官网:https://52cg1.site
 
-52吃瓜备用线路1 https://52cg.day/
+52吃瓜备用线路1 https://52cg01.com/
 
 52吃瓜备用线路2 https://52cg1.me/
 
