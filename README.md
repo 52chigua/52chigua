@@ -8,7 +8,7 @@
 
 52吃瓜官方QQ群：https://52cg.fund/?path=/qun.html
 
-52吃瓜永久地址（需科学⬆️网工具）https://52cg1.me/
+52吃瓜永久地址（需科学⬆️网工具）https://52chigua01.com/
 
 52吃瓜TG官方群:https://t.me/cg52_day/3
 
