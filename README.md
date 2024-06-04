@@ -1,16 +1,12 @@
-52吃瓜网最新地址👋（最新更新时间2024-05-06）
+51黑料网最新地址👋（最新更新时间2024-06-04）
 
-52吃瓜最新官网:https://52cg2.co
+51黑料最新官网: https://51hl01.com
 
-52吃瓜备用线路1 https://52cg01.com/
+51黑料官方QQ群：https://51hl01.com/?path=/qun.html
 
-52吃瓜备用线路2 https://52cg1.me/
+51黑料永久地址（需科学⬆️网工具）https://51hl.vip
 
-52吃瓜官方QQ群：https://52cg.fund/?path=/qun.html
-
-52吃瓜永久地址（需科学⬆️网工具）https://52chigua01.com/
-
-52吃瓜TG官方群:https://t.me/cg52_day/3
+51黑料TG官方群:https://t.me/cg52_day/3
 
 失联获取最新地址方法1：https://github.com/52chigua/52chigua
 
